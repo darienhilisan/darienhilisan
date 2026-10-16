@@ -111,7 +111,7 @@ Comprehensive QA consulting and testing background for CareSpan USA, a telehealt
   * **Project Delivery:** Managed timelines and cross-functional teams to ensure milestones were consistently delivered on time and within scope.
 
 ### **Vuefixcel Multimedia Studios** (Iloilo City)
-* **Photo Editor** *(2018 – September 2024)*
+* **Photo Editor** *(2018 – September 2018)*
   * **Operational Excellence:** Maintained high-volume, high-precision real estate photo enhancements and visual decluttering under tight deadlines.
 
 ---
